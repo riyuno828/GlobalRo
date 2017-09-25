@@ -1,0 +1,2 @@
+# GlobalRo
+Global Ragnarok Online
